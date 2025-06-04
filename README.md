@@ -11,7 +11,7 @@ There’s something magical about watching someone look in the mirror after a ha
 
 I believe grooming is self-care, and self-care is empowering. A good massage after a long week, a fresh cut before an interview, or a skincare treatment that makes someone feel comfortable in their skin—these aren’t just services. They’re small acts of restoration and joy. And I want to create a space where those moments happen every day.
 
-![Person smiling at their reflection after grooming session](path/to/image2.jpg)
+![Person smiling at their reflection after grooming session](/AQOcgD8r6dFI0KJVPCCiE91nNihwoD1vmmfXGYTM3Dmt9BOqHPAv_5v48ANBSOp_Vx91fqOZikMf0e2xXo6-fPYQzV3Edt9G9SLDi9Wh0NP1CyrK3rRcUw9_VbELgORhvGhparDvx2xjb_Dhdf9wa7jcBdZ0lw.jpeg)
 *Caption: That moment of fresh confidence—the real reason behind this dream.*
 
 My vision for the salon is not just a place where people come in for a service and leave. It’s about creating an experience—an escape. Think of a space designed like an old English home: vintage-inspired interiors, elegant detailing, and rich textures that make people feel like they’ve stepped into another world. I’ve chosen a dark green theme for the interiors, blending classic charm with a modern touch. It will feel premium, thoughtful, and relaxing—without the intimidating price tag.

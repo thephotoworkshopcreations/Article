@@ -24,5 +24,5 @@ Most salons at this level charge a premium, but my goal is different. I want to 
 *Caption: OHG: A space that feels like a home, but looks and performs like luxury.*
 
 
-[![Watch the video](https://img.youtube.com/vi/VIDEO_ID/0.jpg)]([https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=Hf6abfL1la4))
+[![Watch the video]([https://img.youtube.com/vi/VIDEO_ID/0.jpg](https://www.youtube.com/watch?v=Hf6abfL1la4))]([https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=Hf6abfL1la4))
 

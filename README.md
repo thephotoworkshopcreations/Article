@@ -22,4 +22,5 @@ Most salons at this level charge a premium, but my goal is different. I want to 
 
 ![OHG Salon brand mockup with dark green theme and vintage vibe](/aaa.jpeg)
 *Caption: OHG: A space that feels like a home, but looks and performs like luxury.*
+[![Watch the video](https://img.youtube.com/vi/VIDEO_ID/0.jpg)](https://www.youtube.com/watch?v=VIDEO_ID)
 

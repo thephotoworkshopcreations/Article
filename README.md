@@ -20,6 +20,6 @@ The name? **OHG**. It's short, memorable, and speaks to that moment clients feel
 
 Most salons at this level charge a premium, but my goal is different. I want to provide *premium service at a mid-range price*. Because feeling confident and taken care of shouldn't be a luxury. It should be accessible to everyone—students, working professionals, parents, anyone who just needs a break and a boost.
 
-![OHG Salon brand mockup with dark green theme and vintage vibe](/AdobeStock_276306017 (1).jpeg)
+![OHG Salon brand mockup with dark green theme and vintage vibe](/AdobeStock_276306017(1).jpeg)
 *Caption: OHG: A space that feels like a home, but looks and performs like luxury.*
 

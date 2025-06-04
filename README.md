@@ -4,7 +4,7 @@
 
 When people hear that I’m opening a salon, the first thing they ask is, “Why?” The assumption is often that I’m chasing money or riding a business trend. But the truth is, this decision comes from something much deeper than financial gain. It comes from my love for witnessing transformation.
 
-![Vintage salon interior with dark green theme and cozy lighting](path/to/image1.jpg)
+![Vintage salon interior with dark green theme and cozy lighting](/AQOFQAibhFqgKBg-LgifzI2HXrb5x9lCClw2ikmBAZaCCX_BZ3VYn5qJAfpxW_s4ZvXJwKCSZhW2MAp96Wxg6sQsVDTzmsQsbyEPhUT8ysBxTVmt1k_qr1oXNO9NQYFXjjMn6X4be_wxU1vRvoqBjYZLh1Icjg.jpeg)
 *Caption: A glimpse into the vibe—classic English vintage meets modern calm.*
 
 There’s something magical about watching someone look in the mirror after a haircut, beard trim, or a simple facial. It’s not just about how they look—though the results are often stunning—it’s about how they *feel*. That boost of confidence, that tiny shift in posture, that little smile. To play even the smallest role in someone’s metamorphosis—that's what drives me.
